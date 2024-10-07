@@ -1,0 +1,1 @@
+# Resenha-Artigo-Thoughtworks-Technology-Radar
